@@ -1,4 +1,4 @@
-### Hi there 👋
+### I c0d3 for Laz1n3ss
 
 <!--
 **shivamsuyal/shivamsuyal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
